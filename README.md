@@ -1,8 +1,8 @@
 ### Hi there ✨
 
-🔭 I’m currently working on Luna a virtual assistant to make your day easier :)
+🔭 I’m currently working on Luna, a virtual assistant to make your day easier :)
 
-🌱 I’m currently learning Computer Science and AI in University
+🌱 I’m studying Computer Science and AI in University
 
 👯 I’m looking to collaborate on any fun projects that come up!
 
