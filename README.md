@@ -6,6 +6,8 @@
 
 👯 I’m looking to collaborate on any fun projects that come up!
 
+☁️ Favourite quote:  "One day there won’t be female leaders. There will just be leaders" - Sheryl Sandberg
+
 📫 How to reach me isabel.valenzuelarivero@gmail.com
 
 👉 [My LinkedIn](https://www.linkedin.com/in/isabel-de-valenzuela-12b11a215)
