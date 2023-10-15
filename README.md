@@ -1,4 +1,4 @@
-### Hi there 
+### Get to know me!
 
 🔭 I’m currently working on Luna, a virtual assistant to make your day easier :)
 
