@@ -6,7 +6,7 @@
 
 👯 I’m looking to collaborate on any fun projects that come up!
 
-🥭  Food for thought: "One day there won’t be female leaders. There will just be leaders" - Sheryl Sandberg
+🥭  Food for thought: "One day there won’t be female leaders. There will just be leaders" - Sheryl Sandberg, COO of Facebook
 
 📫 How to reach me isabel.valenzuelarivero@gmail.com
 
